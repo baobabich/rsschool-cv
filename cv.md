@@ -15,7 +15,7 @@ My goal is to start a career of a junior Front-End developer. I want to improve 
 
 ### SKILLS: ###
 
-
++ HTML, CSS (basic level)
 + JavaScript (basic level)
 + Version control GIT (basic level)
 
