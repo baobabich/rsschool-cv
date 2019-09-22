@@ -250,7 +250,7 @@ Engineer of automation of technological processes and production procedures.
 
 ### ENGLISH: ###
 
-With the help of a dictionary I can translate a large amount of text. Not bad pronounciation and orfography. Without problem can introduce myself and understand my companion. Succesfully completed Streamline English courses and got sertificate of Intermediate level.
+With the help of a dictionary I can translate a large amount of text. Not bad pronounciation and spelling. Without problem can introduce myself and understand my companion. Succesfully completed Streamline English courses and got sertificate of Intermediate level.
 My last job was associated with communication with foreign organizations for buying import equipment
 and spare parts, as I performed duties of chef engineer of pharmaceutical production.
 To write a common email or translate instructions and specifications was ordinary routine. 
