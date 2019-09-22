@@ -1,1 +1,0 @@
-https://baobabich.github.io/rsschool-cv/cv
