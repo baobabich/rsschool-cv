@@ -1,7 +1,7 @@
 # Yauheni Babeikin
 ### CONTACT INFORMATION:
 
-**E-mail:** babarich@gmail.com 
+**E-mail:** baobabich@gmail.com 
 
 **Phone:** +375(29)2475111
 
